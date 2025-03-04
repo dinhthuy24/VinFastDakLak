@@ -1,4 +1,4 @@
-# Tin tức - Sự kiện VinFast Tây Nguyên [VINFAST TÂY NGUYÊN](https://vinfasttaynguyen.com/mua-xe-tra-gop)
+# Tin tức - Sự kiện [VINFAST TÂY NGUYÊN](https://vinfasttaynguyen.com/mua-xe-tra-gop)
 
 ## 🔹 Nhiều chủ xe bán tải chuyển sang sử dụng VinFast VF 3  
 ➡ Xu hướng người dùng chuyển từ xe bán tải sang VinFast VF 3 vì sự tiện dụng và phù hợp nhiều nhu cầu.  
