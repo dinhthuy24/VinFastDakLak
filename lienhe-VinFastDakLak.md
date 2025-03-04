@@ -1,5 +1,4 @@
-**# Tóm tắt nội dung trang "Liên hệ" của [VinFast Tây Nguyên](https://vinfasttaynguyen.com/lien-he)**  
-
+  
 Trang **Liên hệ** trên website **[VinFast Tây Nguyên](https://vinfasttaynguyen.com)** cung cấp đầy đủ thông tin để khách hàng có thể dễ dàng kết nối với đại lý, bao gồm:  
 
 ## **1. Thông tin liên hệ chính**  
