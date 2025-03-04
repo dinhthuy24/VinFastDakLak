@@ -25,3 +25,10 @@
 🔗 [Xem chi tiết](https://vinfasttaynguyen.com/loc-gio-dieu-hoa-o-to-la-gi-chuc-nang-va-nguyen-ly-hoat-dong.html?utm_source=chatgpt.com)  
 
 📢 Xem thêm tin tức mới nhất tại **[VinFast Tây Nguyên - Tin tức & Sự kiện](https://vinfasttaynguyen.com/category/tin-tuc-su-kien?utm_source=chatgpt.com)** 🚗💨
+
+## **THÔNG TIN LIÊN HỆ**
+📍 **Địa chỉ:** 360 Nguyễn Chí Thanh, TP. Buôn Ma Thuột, Đắk Lắk  
+📞 **Hotline:** 0912 143 066  
+📧 **Email:** my.chevroletcongthanh@gmail.com  
+🌐 **Website:** [www.vinfasttaynguyen.com](https://vinfasttaynguyen.com/mua-xe-tra-gop)
+
