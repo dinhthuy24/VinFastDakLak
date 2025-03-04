@@ -1,13 +1,5 @@
 # Showroom Ô Tô VinFast Buôn Ma Thuột – Đại Lý Chính Hãng Tại Đắk Lắk
 
-Bạn đang tìm kiếm một chiếc xe VinFast chất lượng với giá tốt nhất tại Đắk Lắk? **Showroom Ô Tô VinFast Buôn Ma Thuột** là địa chỉ tin cậy dành cho bạn!
-
-## Về Chúng Tôi
-📍 **Địa chỉ:** [360 Nguyễn Chí Thanh, TP Buôn Ma Thuột, Đắk Lắk](https://goo.gl/maps/KLV1Hc8j9w7)  
-📞 **Hotline:** [0912 143 066](tel:0912143066)  
-📧 **Email:** [my.chevroletcongthanh@gmail.com](mailto:my.chevroletcongthanh@gmail.com)  
-🌐 **Website:** [www.vinfasttaynguyen.com](https://vinfasttaynguyen.com)  
-
 Showroom VinFast Buôn Ma Thuột tự hào là đại lý chính hãng cung cấp các dòng xe **VinFast** mới nhất, với nhiều chính sách ưu đãi hấp dẫn. Với không gian trưng bày hiện đại, đội ngũ nhân viên chuyên nghiệp, chúng tôi luôn sẵn sàng tư vấn, hỗ trợ khách hàng 24/7.
 
 ## Danh Sách Xe Ô Tô VinFast Hiện Có
