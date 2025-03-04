@@ -68,3 +68,10 @@ Bạn đang quan tâm đến bảng giá xe VinFast tại **Đắk Lắk**? Hãy
 🔥 **Hãy đến ngay VinFast Tây Nguyên để trải nghiệm và sở hữu ngay mẫu xe VinFast yêu thích với giá tốt nhất tại Đắk Lắk!**  
 
 🔗 **Xem thêm chi tiết tại:** [VinFast Tây Nguyên](https://vinfasttaynguyen.com/bang-gia-xe-oto-vinfast)
+
+## **THÔNG TIN LIÊN HỆ**
+📍 **Địa chỉ:** 360 Nguyễn Chí Thanh, TP. Buôn Ma Thuột, Đắk Lắk  
+📞 **Hotline:** 0912 143 066  
+📧 **Email:** my.chevroletcongthanh@gmail.com  
+🌐 **Website:** [www.vinfasttaynguyen.com](https://vinfasttaynguyen.com/mua-xe-tra-gop)
+
